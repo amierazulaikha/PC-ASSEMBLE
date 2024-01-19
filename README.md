@@ -1,6 +1,6 @@
 # Reflection on PC Assembly Lab 🖥️🔧
 
-![pc](https://github.com/amierazulaikha/PC-ASSEMBLE/assets/148413070/6cc6f44e-fee7-4dd2-9a8f-ce8346a6cb1a)
+![4](https://github.com/amierazulaikha/PC-ASSEMBLE/assets/148413070/1960e7dd-0baf-4c91-ab3d-5b90fc47a529)
 
 ## What I Have Gained 🧠💡
 
